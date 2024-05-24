@@ -113,3 +113,21 @@ Instructions:
 7. Drop tablespoon-sized balls of dough onto ungreased baking sheets.
 8. Bake for 8 to 10 minutes or until golden brown.
 9. Cool on wire racks.
+
+### Biko (Filipino Sticky Rice Cake)
+
+Ingredients:
+- 1 kg sticky rice
+- 1 big can coconut cream
+- 2 big cans coconut milk
+- 1kg dark brown sugar
+
+Instructions:
+1. Cook sticky rice like normal rice with a little less water. 
+2. While waiting to the sticky rice to be cooked, cook the coconut cream until oil comes out and latik (syrupy condiment derived from reducing coconut milk and sugar) forms. 
+3. Set aside.
+4. On a pan boil the coconut milk with brown sugar untill the sugar disolves. 
+5. Put the cooked sticky rice on the coconut milk and sugar mixture until fully absorbed, stirring constantly. 
+6. Prepare the serving plate by putting a little of the coconut oil. 
+7. Pour in the cooked bico on the mold and let cool sprinkle with the latik 
+8. Enjoy!
