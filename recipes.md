@@ -81,6 +81,7 @@ Ingredients:
 - Lettuce
 - Tomato
 - Mayonnaise
+- Sriracha Sauce
 
 Instructions:
 1. Preheat grill to medium-high heat.
